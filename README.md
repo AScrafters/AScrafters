@@ -4,7 +4,7 @@
 
 💻 I mainly code JavaScript but I can code html too
 
-📧 Reach Me - Discord Tag AScrafters#0001
+📧 Reach Me - AScrafters#0001
 
 💜 Looking to collab - AScrafters#0001 
 
